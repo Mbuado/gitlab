@@ -3,4 +3,6 @@
 
 Kobena posting on social media at 1
 
-posted at 12 no instagram at the gym2
+posted at 12 no instagram at the gym
+
+trying something new
